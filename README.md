@@ -10,4 +10,4 @@
 
 这些平台专注于日韩av高清免费在线观看资源，汇集素人高清影视及精品蜜桃内容，更新频繁，分类详细。每个视频页面都提供影片时长、清晰度及演员介绍，支持高清视频播放，并根据网络速度自动调整画质，确保流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chieu20250710/chieu17 ）</span>
